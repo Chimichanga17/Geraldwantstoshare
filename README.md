@@ -1,2 +1,2 @@
-# Regi-wanna-talk
+# Geraldwantstoshare
 dat rad website (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ ✧ﾟ･: *ヽ(◕ヮ◕ヽ)
